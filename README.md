@@ -1,11 +1,10 @@
 # petra-website-store
 
-*Rap snitches, telling all their business
-Sit in the court and be their own star witness
-Do you see the perpetrator? Yeah, I'm right here
-Fuck around, get the whole label sent up for years, uh
-Rap snitches, telling all their business
-Sit in the court and be their own star witness
-Do you see the perpetrator? Yeah, I'm right here
-Fuck around, get the whole label sent up for years*
-
+*The gods may throw a dice
+Their minds as cold as ice
+And someone way down here
+Loses someone dear
+The winner takes it all
+The loser has to fall
+It's simple and it's plain
+Why should I complain?*
